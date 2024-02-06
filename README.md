@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @KulawyJoe
+- 👀 I’m interested in play game.
+- ⚡ Fun fact: I don't like strawbery🍓
+- 👎 Real fact: Jeb4ć PiS
